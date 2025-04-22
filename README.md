@@ -1,4 +1,8 @@
-## Hi there 👋
+## Wena po (Hello!)👋
+
+🍕Pepperoni Pizza and Completo Italiano God
+
+🖥️Trying new things
 
 <!--
 **M4CH3T3xd/M4CH3T3xd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
